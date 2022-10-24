@@ -1,1 +1,1 @@
-Gestión de una empres de juego
+Gestión de una empresa de juego
